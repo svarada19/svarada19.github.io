@@ -1,9 +1,9 @@
 # Fives
 
 ## About Me: 
-*Graduate of UML 2018 - MIS and Finance*
+*Graduate of UML 2022 - MIS and Finance*
 
-*Current Pursuant of Masters in Business Analytics* 
+*Current Pursuant of Masters in Business Analytics, Ex* 
 
 ## Past Experiences:
 *DELL*, *IBM*, *UKG*, *GroupFiO*, *BWH*, *WT&F*
